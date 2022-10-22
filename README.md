@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @jima07
+- 👋 Hi, I’m @jimaaguiar
 - 🌱 I’m currently learning Computer Science and Business Management
 - 💞️ I’m looking to collaborate in a big prestigious company.
 - 📫 How to reach me Linkdin: https://www.linkedin.com/in/jose-aguiar/
